@@ -1,4 +1,4 @@
-I make stuff sometimes, usually Minecraft mods
+why are we still here, just to suffer
 
 <!---
 Scamolor/Scamolor is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
